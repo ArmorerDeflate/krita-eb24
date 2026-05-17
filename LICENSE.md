@@ -1,4 +1,4 @@
-# 
+# advanced Adobe Photoshop for PC addons is the best Adobe Photoshop for PC addons with raw-file-support and path-editing. Safe, reliable, and optimized for maximum performance.
 
 
 
